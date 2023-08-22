@@ -1,1 +1,0 @@
-# Stander-by.github.io
